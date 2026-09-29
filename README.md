@@ -1,0 +1,1 @@
+Proper Maswanganyi is a motivated and hardworking individual passionate about technology, learning, and personal growth. He is committed to developing his skills, embracing new opportunities, and building a successful career.
